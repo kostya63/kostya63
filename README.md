@@ -8,7 +8,7 @@ In addition, I have huge project management experience, which may be beneficial 
 Sincerely yours, Konstantin Mukhametshin  
 
 
-📫 How to reach me by e-mail: konstantin.mukhametshin@gmail.com
+📫 How to reach me: konstantin.mukhametshin@gmail.com
 
 <!---
 kostya63/kostya63 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
